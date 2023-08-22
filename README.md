@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vk9669901922@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SfuSdpu_S6jNcUhEhGoB5WOVJSbrKeIE/view?usp=sharing](https://drive.google.com/file/d/1SfuSdpu_S6jNcUhEhGoB5WOVJSbrKeIE/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1SfuSdpu_S6jNcUhEhGoB5WOVJSbrKeIE/view?usp=sharing](https://drive.google.com/file/d/1nhs55S49P3AmgGm6HjVNG6_QXKz2nK_A/view?usp=sharing)
 
 - ⚡ Fun fact **I Think I Am Overachiever**
 
